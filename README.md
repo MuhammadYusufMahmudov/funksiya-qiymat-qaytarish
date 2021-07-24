@@ -1,0 +1,1 @@
+# funksiya-qiymat-qaytarish
